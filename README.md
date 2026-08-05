@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://file.garden/aRJiOL-RcxklS7T1/wxs.png)
+![](https://file.garden/aRJiOL-RcxklS7T1/nenene.png)
 
 welcome to my extra info github!
 <div align="left">
